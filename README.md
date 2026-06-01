@@ -1,1 +1,1 @@
-AI careear project
+AI career project
